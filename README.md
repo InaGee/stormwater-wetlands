@@ -9,6 +9,6 @@ Subtropical and temperate coastal saltmarsh of Australia is listed as an endange
 Authors:
 Ina Geedicke, Jens Oldeland, Michelle R. Leishman
 
-Journal:
+Journal: Science of the Total Environment, 637 (2018): 137-144
 
 
